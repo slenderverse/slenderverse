@@ -10,7 +10,7 @@
 <p align="center">
 <strong>it/he</strong> 19 <img src="https://files.catbox.moe/a12rm9.gif"> <i>androgyne</i> ⚢⚣
 <p align="center">
-Big into bandom, RPF, lezzing out, RPGmaker games, and kittens
+Big into bandom, RPF, lezzing out, Creepypasta, and kittens
 </p>
 <p align="center">
 <a href="https://rentry.co/folieadeux">Extended</a> • <a href="https://lesgay.straw.page/">Strawpage</a> • <a href="https://clover.atabook.org">Atabook</a>
