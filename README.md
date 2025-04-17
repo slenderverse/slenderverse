@@ -13,7 +13,7 @@
 Big into bandom, RPF, lezzing out, Creepypasta, and kittens
 </p>
 <p align="center">
-  DNI: If you constantly partake in discourse (You are really annoying) or if you like pedophilia and incest (I think you are strange)
+  DNI: If you constantly partake in discourse (You are really annoying) or if you ship pedophilia and incest (I think you are strange)
 </p>
 <p align="center">
 <a href="https://rentry.co/folieadeux">Extended</a> • <a href="https://lesgay.straw.page/">Strawpage</a> • <a href="https://clover.atabook.org">Atabook</a>
